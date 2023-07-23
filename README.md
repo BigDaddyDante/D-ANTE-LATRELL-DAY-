@@ -1,2 +1,3 @@
-# D-ANTE-LATRELL-DAY-
-N/A
+$ D'ANTÉ JOESPH LATRELL DAY $
+$    DANTE LATRELL DAY  
+$       $⚛️DANTE⚛️$ 
